@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning python and java
 - 📫 How to reach me : ghstrvn@gmail.com
 - 😄 Pronouns: he/him
-- 🇧🇷 I'm from Brazil but i can speak English and Portuguese and a little of Spanish
+- 🇧🇷 I'm from Brazil but i can speak English, Portuguese and a little of Spanish
 - ⚡ Fun fact: I was rank 1 world player of Rayman legends multiplayer 
