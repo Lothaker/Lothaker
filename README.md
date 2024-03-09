@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Lothaker
+- 👀 I’m on college now
+- 🌱 I’m currently learning python and java
+- 📫 How to reach me : ghstrvn@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i was rank 1 world player of Rayman legends multiplayer 
